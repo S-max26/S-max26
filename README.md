@@ -1,4 +1,4 @@
-<img width="1584" height="396" alt="Black Gradient Minimalist Corporate Business Personal Profile New LinkedIn Banner" src="https://github.com/user-attachments/assets/88b78d3e-07fd-4147-86d0-a68282bbb015" />
+<img width="1584" height="396" alt="Black Gradient Minimalist Corporate Business Personal Profile New LinkedIn Banner" src="https://github.com/user-attachments/assets/e8f3bbf1-6d06-42b1-97be-5e49c4818275" />
 
 
 
